@@ -1,1 +1,1 @@
-![ducky](https://github.com/user-attachments/assets/f9467f56-60ee-48ce-b41f-6007fa960d16)
+![Coding](https://media.giphy.com/media/ZVik7pBtu9dNS/giphy.gif)
