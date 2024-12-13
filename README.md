@@ -1,1 +1,1 @@
-![Dog Driving](https://media.giphy.com/media/3o6ZtaO9BZHcOjmErm/giphy.gif)
+![Coding Struggles](https://media.giphy.com/media/LmNwrBhejkK9EFP504/giphy.gif)
