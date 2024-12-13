@@ -1,1 +1,1 @@
-![Developer at Work](https://giphy.com/gifs/tech-technology-mograph-pOEbLRT4SwD35IELiQ)
+![Tech GIF](https://media.giphy.com/media/pOEbLRT4SwD35IELiQ/giphy.gif)
