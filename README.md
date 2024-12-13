@@ -1,1 +1,1 @@
-![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
+![hippo](https://www.google.com/url?sa=i&url=https%3A%2F%2Fcl.pinterest.com%2Fpin%2F1024498615225893722%2F&psig=AOvVaw3LeolyTCHNnhVW3ViSVx2O&ust=1734205738611000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPjW3vrBpYoDFQAAAAAdAAAAABAK)
