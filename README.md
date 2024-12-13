@@ -1,1 +1,1 @@
-![Cat Keyboard](https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif)
+![Dancing Bird](https://media.giphy.com/media/l41lFw057lAJQMwg0/giphy.gif)
